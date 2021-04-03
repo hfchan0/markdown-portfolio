@@ -1,2 +1,3 @@
 * IZ\*ONE
   * JINJOO
+  * Woolimz
