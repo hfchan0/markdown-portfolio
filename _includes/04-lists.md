@@ -1,0 +1,3 @@
+* IZ\*ONE
+  * JINJOO
+  * Woolimz
